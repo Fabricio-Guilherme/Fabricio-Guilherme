@@ -12,4 +12,4 @@ fabricioguilherme@prof.educacao.sp.gov.br
 
 @fabricioguilhe
 
-![descrição do GIF]([link GIF do Tenor](https://media1.tenor.com/m/M_aZ6_OHVyUAAAAC/professor-noslen-noslen.gif))
+![descrição do GIF](https://media1.tenor.com/m/M_aZ6_OHVyUAAAAC/professor-noslen-noslen.gif)
